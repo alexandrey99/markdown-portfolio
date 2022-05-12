@@ -1,1 +1,1 @@
-Bauman Moscow State Technical University
+- Bauman Moscow State Technical University
