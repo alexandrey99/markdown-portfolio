@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+Bauman Moscow State Technical University
